@@ -17,6 +17,6 @@ We invest in technology to make the flower business more efficient, transparent,
 
 For partnership, product, or business inquiries:
 
-- **Website:** [californiaflowers.ro](https://californiaflowers.ro/)
-- [**Contact us**](https://californiaflowers.ro/pages/contact-us)  
+- **Website:** [greenbyte.ltd](https://greenbyte.ltd/)
+- [**Contact us**](https://greenbyte.ltd/contact)
 - **Instagram:** [@californiaflowers.ro](https://www.instagram.com/californiaflowers.ro/)
